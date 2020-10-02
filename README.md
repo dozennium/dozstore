@@ -1,1 +1,2 @@
+Silahkan baginda
 # dozstore
